@@ -1,0 +1,1 @@
+双击 Lobster Saving the Bat.exe 开始游戏.
